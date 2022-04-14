@@ -10,3 +10,5 @@
 
 
 - [奥海明月闲聊群](https://t.me/brightmoontalk)  telegram 电报群: https://t.me/brightmoontalk
+
+  ![image](https://user-images.githubusercontent.com/7894483/163405246-dda8b62e-8fd7-45a9-88e2-2473acfaa915.png)
